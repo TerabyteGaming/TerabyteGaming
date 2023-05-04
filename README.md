@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TerabyteGaming
+- 👋 Hi, I’m @ExaByte
 - 👀 I’m interested in Metal Music, Video Games, History, Military, and Computer Technology
 - 🌱 I’m currently learning nothing at this moment
 - 💞️ I’m looking to collaborate on making some computer software
